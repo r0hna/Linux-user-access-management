@@ -11,7 +11,7 @@
 ## CREATOR:
 **Rohit**
 
-Check it out my [LinkedIn](https://www.linkedin.com/in/rohit-dala1/)
+Check it out my [LinkedIn](https://www.linkedin.com/in/r0hna/)
 
 ## SUPPORT:
 If you like my content or find this code useful, or ❤️ support me by buying me a coffee ☕
